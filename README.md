@@ -1,8 +1,8 @@
-Privacy Policy for Black Bear ONE Car Club SMS Notifications
+Privacy Policy for Black Bear ONE Live Free or Die 401 Club SMS Notifications
 
 Effective Date: 13 April 2025
 
-Black Bear ONE Car Club ("we," "our," or "us") is committed to protecting the privacy and security of your personal information. This Privacy Policy explains how we collect, use, and protect the information you provide when subscribing to receive SMS notifications from Black Bear ONE regarding car club events and updates.
+Black Bear ONE Live Free or Die 401 Club ("we," "our," or "us") is committed to protecting the privacy and security of your personal information. This Privacy Policy explains how we collect, use, and protect the information you provide when subscribing to receive SMS notifications from Black Bear ONE regarding Live Free or Die 401 club events and updates.
 
 1. Information We Collect
 
@@ -16,7 +16,7 @@ Any other information you voluntarily provide during the subscription process, s
 
 We use the information we collect for the following purposes:
 
-To send SMS messages related to upcoming car club events, meetups, and other updates.
+To send SMS messages related to upcoming Live Free or Die 401 club events, meetups, and other updates.
 
 To provide you with important information and reminders about events.
 
@@ -46,7 +46,7 @@ We may update this Privacy Policy from time to time. Any changes will be communi
 
 If you have any questions or concerns about this Privacy Policy or the way your information is handled, please contact us at:
 
-Black Bear ONE Car Club
+Black Bear ONE Live Free or Die 401 Club
 Dave Abare
 dave@nedc.com
 
